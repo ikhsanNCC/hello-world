@@ -1,2 +1,2 @@
 # hello-world
-start to learn
+coba-coba aja. kali aja bisa.
